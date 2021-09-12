@@ -1,4 +1,3 @@
-### Прочитанные книги </br>
 [Мэдсон Патрисия. Уроки импровизации. Как перестать планировать и начать жить](#Medson_Uroki-improvizacii-Kak-perestat-planirovat-i-nachat-zhit) </br>
 ---
 </br>
