@@ -1,4 +1,4 @@
-[Уроки импровизации. Как перестать планировать и начать жить. | Мэдсон Патрисия.](#Medson_Uroki-improvizacii-Kak-perestat-planirovat-i-nachat-zhit) </br>
+[*Уроки импровизации. Как перестать планировать и начать жить. | Мэдсон Патрисия.*](#Medson_Uroki-improvizacii-Kak-perestat-planirovat-i-nachat-zhit) </br>
 [Лайфхак на каждый день | Манн Игорь Борисович, Каримов Фарид Олегович.](#Mann_Layfhak-na-kazhdyy-den) </br>
 ---
 </br>
