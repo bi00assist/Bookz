@@ -1,2 +1,0 @@
-# Bookz
-Read ebookz
